@@ -24,7 +24,7 @@ Oh, yesterday came suddenly
 
 Why she had to go? I don't know, she wouldn't say
 
-I said something wrong, now I long for yesterday
+I said something very bad, now I long for yesterday
 
 
 <br><br>
@@ -33,7 +33,7 @@ Tomorrow
 
 Love'll be such an easy game to play
 
-Now I need a place to hide away
+Now I need a place to run away
 
 Oh, I believe in yesterday
 
