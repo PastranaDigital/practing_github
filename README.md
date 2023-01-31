@@ -12,11 +12,11 @@ Oh, I believe in yesterday
 
 Suddenly
 
-I'm not half the man I used to be
+I'm not half the woman I used to be
 
 There's a shadow hanging over me
 
-Oh, yesterday came suddenly
+Oh, yesterday I almost died suddenly
 
 
 <br><br>
