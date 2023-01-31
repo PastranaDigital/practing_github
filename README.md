@@ -29,9 +29,9 @@ I said something wrong, now I long for yesterday
 
 <br><br>
 
-Yesterday
+Tomorrow
 
-Love was such an easy game to play
+Love'll be such an easy game to play
 
 Now I need a place to hide away
 
