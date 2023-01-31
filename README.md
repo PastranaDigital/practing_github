@@ -14,7 +14,7 @@ Suddenly
 
 I'm not half the woman I used to be
 
-There's a shadow hanging over me
+There's a plant box hanging over me
 
 Oh, yesterday I almost died suddenly
 
