@@ -2,7 +2,7 @@
 
 Today? (sung with curiousity)
 
-All my troubles seemed so far away (begrudginly)
+All my troubles seemed so far away (begrudgingly)
 
 Now it looks as though they're here to stay
 
