@@ -1,6 +1,6 @@
 # Practice with Lyrics
 
-Today
+Today? (sung with curiousity)
 
 All my troubles seemed so far away
 
