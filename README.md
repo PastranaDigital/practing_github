@@ -4,7 +4,7 @@ Today? (sung with curiousity)
 
 All my troubles seemed so far away (begrudgingly)
 
-Now it looks as though they're here to stay
+Now it looks as though they're here to stay (sung with ire)
 
 Oh, I believe in yesterday
 
